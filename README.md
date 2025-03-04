@@ -38,7 +38,7 @@ Sprunki
 
 PPT
 
-Genshin Impact.
+Genshin Impact
 
 HH/HB
 
