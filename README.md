@@ -77,6 +77,8 @@ True Crime
 
 Animation Memes
 
+Warrior Cats
+
 (I'm also a furry <:)
 
 -MY COMF/HCOMF LIST:
