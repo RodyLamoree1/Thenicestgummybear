@@ -119,7 +119,7 @@ Dizowskyy
 
 I'm a Flippy IRL, I strictly believe that I am him
 
-I don't have actual delusions, IRL is the only term that fits me the most
+I don't have actual delusions, IRL is the only term that fits me the most and the only I feel comfortable using
 
 I don't associate with his "evil" side
 
@@ -127,6 +127,5 @@ I can get uncomfortable being refered to as a cosplay, so if you spot me with my
 
 exmp: "You look nice!" instead of "Your Flippy looks nice!"
 When it comes to doubles I usually just don't interact with them.
-
 
 🐌 THAT'S ALL!
