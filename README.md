@@ -93,7 +93,7 @@ Lackadaisy
 
 My best friend (duh)
 
-Pure Vanilla Cookie (This one a "?")
+Pure Vanilla Cookie
 
 Sprout (hcomf)
 
