@@ -40,6 +40,16 @@ Genshin Impact.
 
 Sprout (Dandy's World) shippers (This one a strict DNI)
 
+[BASIC DNI CITERIA:
+
+Racists
+
+Homophobes/Transphobes
+
+People under 11
+
+Proshippers/Darkshippers
+
 
 -MY MAIN INTERESTS:
 
