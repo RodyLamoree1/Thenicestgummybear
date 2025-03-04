@@ -7,6 +7,8 @@ My attitude is the same as yours so keep that in mind!
 
 I mostly use he/him pronouns but I won't get mad if you use different ones
 
+C+h freely unless I have "Dniuf" or "Dniuid" on!
+
 
 ⛔️[Certain rules:
 
