@@ -81,6 +81,12 @@ Warrior Cats
 
 Mouthwashing
 
+Vocaloid
+
+TADC
+
+Lackadaisy
+
 (I'm also a furry <:)
 
 -MY COMF/HCOMF LIST:
