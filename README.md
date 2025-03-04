@@ -54,6 +54,10 @@ People under 11
 
 Proshippers/Darkshippers
 
+Zoophiles/Pedophiles
+
+"It's just a phase" people
+
 
 -MY MAIN INTERESTS:
 
