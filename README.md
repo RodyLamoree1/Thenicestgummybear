@@ -103,6 +103,10 @@ Backrooms
 
 Granny
 
+Sally Face
+
+Fran Bow
+
 (I'm also a furry <:)
 
 -MY COMF/HCOMF LIST:
