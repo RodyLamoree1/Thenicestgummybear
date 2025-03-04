@@ -38,6 +38,8 @@ PPT
 
 Genshin Impact.
 
+HH/HB
+
 Sprout (Dandy's World) shippers (This one a strict DNI)
 
 [BASIC DNI CITERIA:
