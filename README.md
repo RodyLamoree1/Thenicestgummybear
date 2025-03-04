@@ -50,7 +50,7 @@ Racists
 
 Homophobes/Transphobes
 
-People under 11
+People under 12
 
 Proshippers/Darkshippers
 
