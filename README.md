@@ -56,7 +56,7 @@ Homophobes/Transphobes
 
 People under 12
 
-Proshippers/Darkshippers
+Proshippers
 
 Zoophiles/Pedophiles
 
