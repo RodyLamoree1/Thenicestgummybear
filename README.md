@@ -60,8 +60,6 @@ Proshippers
 
 Zoophiles/Pedophiles
 
-"It's just a phase" people
-
 
 -MY MAIN INTERESTS:
 
