@@ -28,6 +28,8 @@ C+h freely unless I have "Dniuf" or "Dniuid" on!
 
 8 Always ooc, any roleplayers dniuid
 
+9 I have moments where I become non verbal, during these times I won't be able to respond to you at all, I will just stare at my keyboard,unable to touch it whatsoever. That doesn't mean I'm ignoring you, It's just something I can't help so please bear with me
+
 ⚠️ [DNIUID: (This one is for fandoms mostly)
 
 Homestuck
