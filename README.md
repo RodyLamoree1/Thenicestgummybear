@@ -24,7 +24,7 @@ C+h freely unless I have "Dniuf" or "Dniuid" on!
 
 6 I don't appreciate strangers making opinions about my skin, so please refrain from doing that,(You can still crown me tho!)
 
-7 if it doesn't say "oc" in my name then it isn't
+7 My ocs always have "oc" in their names
 
 8 Always ooc, any roleplayers dniuid
 
