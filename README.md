@@ -91,8 +91,6 @@ Mouthwashing
 
 Vocaloid
 
-TADC
-
 Lackadaisy
 
 Undertale Aus 
@@ -104,8 +102,6 @@ Backrooms
 Granny
 
 Baldi's Basics
-
-BATIM
 
 Creepypasta
 
