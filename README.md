@@ -7,28 +7,26 @@ My attitude is the same as yours so keep that in mind!
 
 I mostly use he/him pronouns but I won't get mad if you use different ones
 
-C+h freely unless I have "Dniuf" or "Dniuid" on!
+C+h freely unless I have "Dniuid" on!
 
 
 ⛔️[Certain rules:
 
-1 Don't approach me if I have "Dniuf" in my name and you're a stranger
+1 Interact with caution, I'm not extremely sensitive but I can be more fragile from time to time
 
-2 Interact with caution, I'm not extremely sensitive but I can be more fragile from time to time
+2 I'm extremely introverted and also suffer from social anxiety so keep that in mind
 
-3 I'm extremely introverted and also suffer from social anxiety so keep that in mind
+3 I'll be opening up to you once I get to know you better, it might take long or fast, depends!
 
-4 I'll be opening up to you once I get to know you better, it might take long or fast, depends!
+4 Don't copy my skins without permission, inspo is allowed (excluding heavily)
 
-5 Don't copy my skins without permission, inspo is allowed (excluding heavily)
+5 I don't appreciate strangers making opinions about my skin, so please refrain from doing that,(You can still crown me tho!)
 
-6 I don't appreciate strangers making opinions about my skin, so please refrain from doing that,(You can still crown me tho!)
+6 My ocs always have "oc" in their names
 
-7 My ocs always have "oc" in their names
+7 Always ooc, any roleplayers dniuid
 
-8 Always ooc, any roleplayers dniuid
-
-9 I have moments where I become non verbal, during these times I won't be able to respond to you at all, I will just stare at my keyboard,unable to touch it whatsoever. That doesn't mean I'm ignoring you, It's just something I can't help so please bear with me
+8 I have moments where I become non verbal, during these times I won't be able to respond to you at all, I will just stare at my keyboard,unable to touch it whatsoever. That doesn't mean I'm ignoring you, It's just something I can't help so please bear with me
 
 ⚠️ [DNIUID: (This one is for fandoms mostly)
 
