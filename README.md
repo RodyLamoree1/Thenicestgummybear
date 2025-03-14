@@ -170,16 +170,8 @@ I don't associate with his "evil side" (Fliqpy) this is all I gotta say basicall
 
 ____________________________________________
 
-Game Over.
+The end
 
-No don't worry you didn't lose or anything, this is just simply the end of this long long journey. Now you can finally rest and move onto other stuff, traveler.
-
-Before you go, wanna hear a fun fact? Oh you don't? Well I'm gonna say it anyways:
-
-This readme was way way different, I just edited it beacuse I was bored hahahaha.
-
-Okay now you can go! 
-
-By the way, don't be scared to come back tho, you're always welcome to visit again!
+This it for now, there might be some changes in the future but I doubt. Anyways have a good day!
 
  
