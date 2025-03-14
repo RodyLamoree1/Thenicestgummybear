@@ -1,141 +1,182 @@
-✨️HI! You can call me by Flippy or Jeff!
+Hello, you can call me Flippy or Jeff! I speak Polish and English, however I can make some grammar mistakes.
+____________________________________________
 
-I mostly speak Polish and English
-(I might do grammar mistakes)
+Firstly here are some basic things:
 
-My attitude is the same as yours so keep that in mind!
+1. I mostly use male pronouns, I won't get upset if you use different ones, but I still would appreciate if you refrain from doing so.
 
-I mostly use he/him pronouns but I won't get mad if you use different ones
+2. Iwec. I'm not extremely fragile and I can handle a lot of things, but there are some that can make me uncomfortable, especially if we barely know each other.
 
-C+h freely unless I have "Dniuid" on!
+3. Don't send me friend/party requests randomly, I will always decline since we didn't even have a convo.
 
+4. I usually have dniuid or more specifically "fandom dniuid" when cosplaying a character from a fandom that I prefer people to not interact with me, unless I'm the first one to interact.
 
-⛔️[Certain rules:
+5. I have a bit of a dark humor, if you're uncomfortable with my jokes then lmk, I won't get mad lolz.
 
-1 Interact with caution, I'm not extremely sensitive but I can be more fragile from time to time
+6. C+h freely unless I have dniuid on, that's pretty much it.
 
-2 I'm extremely introverted and also suffer from social anxiety so keep that in mind
+7. Don't copy my skins or take heavy inspo, even if you are my friend or something. I don't mind some minor inspo tho, so dw!
 
-3 I'll be opening up to you once I get to know you better, it might take long or fast, depends!
+8. Don't make random comments about my skins, especially if you're a stranger and I didn't even ask for your opinion. You are allowed to crown me of course, just don't judge me or project your preferences onto me.
 
-4 Don't copy my skins without permission, inspo is allowed (excluding heavily)
+9. Always ooc, roleplayers dniuid. Ooc stands for "Out of character" it basically means that the person cosplaying a certain character doesn't really act like them. Which means they most likely don't want anyone to suddenly start roleplaying with them out of nowhere. For me personally, I might not always know the character I'm cosplaying quite well, and I also suck at roleplaying with people.
 
-5 I don't appreciate strangers making opinions about my skin, so please refrain from doing that,(You can still crown me tho!)
+10. I will open to you once I know you better and start trusting you more. I also don't do any stuff like face or voice reveal so don't even bother asking.
 
-6 My ocs always have "oc" in their names
+11. I'm extremely introverted and have social anxiety.
 
-7 Always ooc, any roleplayers dniuid
+12. I sometimes get non-verbal out of nowhere (literally unable to even touch the keyboard,it often makes me frustrated lol) That doesn't mean I'm ignoring you, my brain just need some time sometimes I guess.
 
-8 I have moments where I become non verbal, during these times I won't be able to respond to you at all, I will just stare at my keyboard,unable to touch it whatsoever. That doesn't mean I'm ignoring you, It's just something I can't help so please bear with me
+13. My ocs always have "oc" in their names,otherwise it's a cosplay, etc.
+____________________________________________
 
-⚠️ [DNIUID: (This one is for fandoms mostly)
+Chapter 2: Dniuid (Fandom edition)
 
-Homestuck
+1. Homestuck
 
-MHA
+2. Hazbin Hotel/ Helluva Boss
 
-FPE
+3. Sprunki
 
-Countryhumans/balls
+4. Countryhumans/Countryballs
 
-Sprunki
+5. Poppy Playtime
 
-PPT
+6. Genshin Impact and it's cousins (yk)
 
-Genshin Impact
+7. Jujutsu Kaisen
+ 
+Note---->[It's not that I think these "franchises" are bad even if I don't specifically like them. It's mostly just the fandoms of these thingies, I seen some stuff so yeah.. Of course it's good to remember that all fandoms have good or bad people in it!]
 
-HH/HB
+____________________________________________
 
-Sprout (Dandy's World) shippers (This one a strict DNI)
+Chapter 3: DNI/Basic DNI citeria.
 
-[BASIC DNI CITERIA:
+1. Racists
 
-Racists
+2. Homophobes/Transphobes
 
-Homophobes/Transphobes
+3. Anti-furries (Unless you are still respectful)
 
-People under 12
+4. Zoophiles
 
-Proshippers
+5. Proshippers
 
-Zoophiles/Pedophiles
+6. Sprout (Yeah the strawberry from Dandy's World) shippers
 
+7. People who don't respect others boundaries
 
--MY MAIN INTERESTS:
+8. People under 12
+____________________________________________
 
-Fnaf
+cHaPtEr ThReE: mah interests or wtv the hell.
 
-FNF
+So I'm a furry, and yeah that's the "first" thing.
 
-CRK
+Also some of these I'm either getting into/getting back into.
 
-Dandy's World
+Now here's a small list:
 
-HTF
+1. Roblox/Pony Town (Self explanatory)
 
-DHMIS
+2. Five Nights at Freddy's
 
-TMC
+3. Dandy's World
 
-Lacey Games
+4. Cookie Run Kingdom
 
-True Crime 
+5. Forsaken
 
-Animation Memes
+6. Creepyasta
 
-Warrior Cats
+7. Backrooms/SCP
 
-Mouthwashing
+8. The Amazing Digital Circus
 
-Vocaloid
+9. Mouthwashing
 
-Lackadaisy
+10. Lackadaisy
 
-Undertale Aus 
+11. My Little Pony
 
-BFB
+12. Friday Night Funkin'
 
-Backrooms
+13. True Crime Community
 
-Granny
+14. Animation Memes Community
 
-Baldi's Basics
+15. Don't Hug Me I'm Scared
 
-Creepypasta
+16. Happy Tree Friends
 
-Married In Red/Dead Plate
+17. Popee The Performer
 
-Forsaken
+18. Granny
 
-(I'm also a furry <:)
+19. Married In Red
 
--MY COMF/HCOMF LIST:
+20. Fran Bow
 
-My best friend (duh)
+(Also this is in random order)
 
-Pure Vanilla Cookie
+____________________________________________
 
-Sprout (hcomf)
+Chapter 4: ✨️COMF✨️ (Did I just use emojis-)
 
-Juice WRLD (hcomf)
+1. Sprout
 
-Xxxtentacion (hcomf)
+2. Juice WRLD 
 
-Laurenzside
+3. Xxxtentacion
 
-Dizowskyy
+4. Pure Vanilla Cookie
 
-~MOST IMPORTANT-
+5. LaurenZSide
 
-I'm a Flippy IRL, I strictly believe that I am him
+6. Dizowskyy
 
-I don't have actual delusions, IRL is the only term that fits me the most and the only I feel comfortable using
 
-I don't associate with his "evil" side
+Extra informations:
 
-I can get uncomfortable being refered to as a cosplay, so if you spot me with my Flippy skin on then make sure to use proper wording
+Sprout is probably my heaviest comf, I pretty much view him as my caretaker if that makes sense, hence why I am uncomfortable with any ships that includes him. Ever since I started getting into Dandy's World I right away felt extremely safe and content seeing him, whenever it would be someone playing as him or just in media. He puts my mind on ease pretty much.
 
-exmp: "You look nice!" instead of "Your Flippy looks nice!"
-When it comes to doubles I usually just don't interact with them.
+Another heavy comf is Juice.
+I sadly didn't become a fan before his passing, and I only been listening to him for a few years.
+I find myself relating to him in some stuff, quite heavily to be honest, that's why I find him so comfortably.
+His music really helps me a lot and it makes me feel less lonely.
+Of course I wouldn't say I'm a hardcore fan, I don't know everything about him, however he's still very important to me, and I miss him so much, really wish he was still alive. 
 
-🐌 THAT'S ALL!
+
+999 forever.
+______________________________^^^^^^^^^^^^^^
+Chapter 5 (The last one): Being a Flippy IRL.
+
+Yeah Flippy from Happy Tree Friends.
+
+I really strictly believe that I am him, whenever I see him I don't really see the character (if that makes sense) but instead me,if someone talks or mention him I pretty much feel like they're talking about me, rather than him as a character. When it comes to doubles I usually just avoid them and will most likely block them right away. I also sometimes feel uncomfortable with simply just cosplays, so I also usually avoid them.
+
+Please do not refer to me as a "cosplay" basically what I'm talking about, is that if you see me having a Flippy skin on, and you happen to like it. Then make sure to use proper wording, exmp: "You look nice" instead of "Your flippy looks nice" or "Nice  Cos". It makes me extremely uncomfortable and weird since I'm not cosplaying him, I'm literally him irl, so please don't do that, even if you're a close friend.
+
+
+I don't have actual delusions, "IRL" is the term that I feel the most comfortable using, and the most fitting for me.
+
+I don't associate with his "evil side" (Fliqpy) this is all I gotta say basically.
+
+_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/
+
+Game Over.
+
+No don't worry you didn't lose or anything, this is just simply the end of this long long journey. Now you can finally rest and move onto other stuff, traveler.
+
+Before you go, wanna hear a fun fact? Oh you don't? Well I'm gonna say it anyways:
+
+This readme was way way different, I just edited it beacuse I was bored hahahaha.
+
+Okay now you can go! 
+
+By the way, don't be scared to come back tho, you're always welcome to visit again!
+
+👋
+
+
+ 
