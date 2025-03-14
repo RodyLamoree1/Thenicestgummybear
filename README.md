@@ -45,6 +45,8 @@ Chapter 2: Dniuid (Fandom edition)
 6. Genshin Impact and it's cousins (yk)
 
 7. Jujutsu Kaisen
+
+8. My Hero Academia
  
 Note--->[It's not that I think these "franchises" are bad even if I don't specifically like them. It's mostly just the fandoms of these thingies, I seen some stuff so yeah.. Of course it's good to remember that all fandoms have good or bad people in it!]
 
