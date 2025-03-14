@@ -46,7 +46,7 @@ Chapter 2: Dniuid (Fandom edition)
 
 7. Jujutsu Kaisen
  
-Note---->[It's not that I think these "franchises" are bad even if I don't specifically like them. It's mostly just the fandoms of these thingies, I seen some stuff so yeah.. Of course it's good to remember that all fandoms have good or bad people in it!]
+Note--->[It's not that I think these "franchises" are bad even if I don't specifically like them. It's mostly just the fandoms of these thingies, I seen some stuff so yeah.. Of course it's good to remember that all fandoms have good or bad people in it!]
 
 ____________________________________________
 
