@@ -121,6 +121,8 @@ Now here's a small list:
 
 22. Object Show Community
 
+23. Vocaloid
+
 (Also this is in random order)
 
 ____________________________________________
