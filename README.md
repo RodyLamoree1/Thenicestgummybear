@@ -182,6 +182,4 @@ Okay now you can go!
 
 By the way, don't be scared to come back tho, you're always welcome to visit again!
 
-👋
-
  
