@@ -148,7 +148,7 @@ Of course I wouldn't say I'm a hardcore fan, I don't know everything about him, 
 
 
 999 forever.
-______________________________^^^^^^^^^^^^^^
+____________________________________________
 Chapter 5 (The last one): Being a Flippy IRL.
 
 Yeah Flippy from Happy Tree Friends.
@@ -162,7 +162,7 @@ I don't have actual delusions, "IRL" is the term that I feel the most comfortabl
 
 I don't associate with his "evil side" (Fliqpy) this is all I gotta say basically.
 
-_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/_/
+____________________________________________
 
 Game Over.
 
@@ -177,6 +177,5 @@ Okay now you can go!
 By the way, don't be scared to come back tho, you're always welcome to visit again!
 
 👋
-
 
  
