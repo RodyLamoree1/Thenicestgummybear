@@ -125,6 +125,8 @@ Now here's a small list:
 
 23. Vocaloid
 
+24. The Mandela Catalouge
+
 (Also this is in random order)
 
 ____________________________________________
