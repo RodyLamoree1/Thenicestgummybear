@@ -15,7 +15,7 @@ Firstly here are some basic things:
 
 6. C+h freely unless I have dniuid on, that's pretty much it.
 
-7. Don't copy my skins or take heavy inspo, even if you are my friend or something. I don't mind some minor inspo tho, so dw!
+7. Don't copy my skins or take heavy inspo, even if you are my friend or something. I don't mind some minor inspo tho, so dw! (Doesn't apply to skins that are inspired by others)
 
 8. Don't make random comments about my skins, especially if you're a stranger and I didn't even ask for your opinion. You are allowed to crown me of course, just don't judge me or project your preferences onto me.
 
