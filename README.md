@@ -13,7 +13,7 @@ Firstly here are some basic things:
 
 5. I have a bit of a dark humor, if you're uncomfortable with my jokes then lmk, I won't get mad lolz.
 
-6. C+h freely unless I have dniuid on, that's pretty much it.
+6. C+h freely unless I have dniuid or dniuf on, that's pretty much it.
 
 7. Don't copy my skins or take heavy inspo, even if you are my friend or something. I don't mind some minor inspo tho, so dw! (Doesn't apply to skins that are inspired by others)
 
