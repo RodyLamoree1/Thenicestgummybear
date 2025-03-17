@@ -178,6 +178,6 @@ ____________________________________________
 
 The end
 
-This it for now, there might be some changes in the future but I doubt. Anyways have a good day!
+The rest will be on my rentry!
 
  
