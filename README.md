@@ -186,6 +186,4 @@ ____________________________________________
 
 The end
 
-The rest will be on my rentry!
-
  
