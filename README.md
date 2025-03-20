@@ -1,3 +1,5 @@
+Working on rentry, will be deleted soon:
+
 Hello, you can call me Flippy or Jeff! I speak Polish and English, however I can make some grammar mistakes.
 ____________________________________________
 
