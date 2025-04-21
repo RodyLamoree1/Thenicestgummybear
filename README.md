@@ -11,8 +11,6 @@ I'm trans (ftm) ,, Primarily It/Its prns but I'm also fine with He/Him.
  
 Both Polish and English, I make mistakes for both :D
 
-;Homestuck ,, HH/HB ,, Countryhumans ,, Genshin Dniuid/uf.
-
 
 Always iwec but if I'm comfortable w you then you don't have to !!
 
