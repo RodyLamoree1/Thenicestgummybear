@@ -3,7 +3,7 @@
 ☆ Hi ,, I go by Jeff and Flippy or you can call me by the names of the characters I kin.
 
 
-I'm trans (ftm) ,, Primarily It/Its prns but I'm also fine with He/Him
+I'm trans (ftm) ,, Primarily It/Its prns but I'm also fine with He/Him.
 
 
 !W2I when I told you to, other than that I don't mind chatting in the public chat.
