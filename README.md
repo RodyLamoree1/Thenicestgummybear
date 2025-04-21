@@ -25,7 +25,11 @@ I have my problems but I'm trying my best to solve them and better myself 👊
 Likes to read from time to time and also learning how to draw so I can draw fun stuff (wow) ☆☆
 
 
+You can contact me through DC,, Roblox,, or PT!!
 
+Roblox user:zuzeczka5
+
+Dc user:nyancat0984_26463
 
 
 
