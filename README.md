@@ -15,7 +15,7 @@ Both Polish and English, I make mistakes for both :D
 Always iwec but if I'm comfortable w you then you don't have to !!
 
 
-Getting back and getting into fandoms,feel free to recommend me stuff ☆
+Getting back and getting into fandoms, feel free to recommend me stuff ☆
 
 Can be cringe at times but I mean, is it a crime?
 
