@@ -17,7 +17,6 @@ Always iwec but if I'm comfortable w you then you don't have to !!
 
 Getting back and getting into fandoms, feel free to recommend me stuff ☆
 
-Can be cringe at times but I mean, is it a crime?
 
 
 I have my problems but I'm trying my best to solve them and better myself 👊
