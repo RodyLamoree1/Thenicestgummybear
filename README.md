@@ -6,7 +6,7 @@
 I'm trans (ftm) ,,  It/Its prns
 
 
-!W2I when I told you to, other than that I don't mind chatting in the public chat.
+! W2I when I told you to, other than that I don't mind chatting in the public chat.
 
  
 Both Polish and English, I make mistakes for both :D
@@ -24,6 +24,8 @@ I have my problems but I'm trying my best to solve them and better myself 👊
 
 Likes to read from time to time and also learning how to draw so I can draw fun stuff (wow) ☆☆
 
+
+Very socially awkward ,, need some time before warming up ,,!
 
 You can contact me through DC,, Roblox,, or PT!!
 
