@@ -1,4 +1,4 @@
-(CHECK RENTRY TOO PLS!)
+(Make sure to check rentry too!)
 
 ☆ Hi ,, I go by Jeff and Flippy or you can call me by the names of the characters I kin.
 
