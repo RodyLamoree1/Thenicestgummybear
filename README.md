@@ -22,7 +22,7 @@ Getting back and getting into fandoms, feel free to recommend me stuff ☆
 I have my problems but I'm trying my best to solve them and better myself 👊
 
 
-Likes to read from time to time and also learning how to draw so I can draw fun stuff (wow) ☆☆
+Likes to read from time to time and also learning how to draw so I can draw fun stuff  ☆☆
 
 
 Very socially awkward ,, need some time before warming up ,,!
