@@ -7,7 +7,7 @@
 
 🥩 DNI if I make you comfortable.
 
-🥩 Check rentry for more information.
+🥩 Check rentry for more information. 
 
 
 
