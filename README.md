@@ -3,6 +3,11 @@
 
 🥩 Most likely have anxiety disorders, not diagnosed as of now. I'm an introvert and socially awkward. My self esteem is also low. Please interact w extra caution.
 
+🥩 I'm a fictionkinner and selfshipper.
+
+🥩 DNI if I make you comfortable.
+
+🥩 Check rentry for more information.
 
 
 
